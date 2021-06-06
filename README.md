@@ -1,1 +1,2 @@
-https://docs.google.com/document/d/1x...
+https://docs.google.com/document/d/1x
+
